@@ -1,4 +1,4 @@
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/7JWprj0W/Untitled119-20261015194218.png" alt="Untitled119 20261015194218" border="0"></a> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://imgbb.com/"><img src="https://i.ibb.co/7JzP3qHD/Untitled120-20261015194342.png" alt="Untitled120 20261015194342" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/7JWprj0W/Untitled119-20261015194218.png" alt="Untitled119 20261015194218" border="0"></a> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://imgbb.com/"><img src="https://i.ibb.co/7JzP3qHD/Untitled120-20261015194342.png" alt="Untitled120 20261015194342" border="0"></a>
 <p align="center">
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/ymShJryZ/Untitled117-20261015190904.png" alt="Untitled117 20261015190904" border="0"></a>
 <p align="center">
@@ -29,4 +29,4 @@ $\color{#5e674f}{\text{black hair,}}$ $\color{#6b6c54}{\text{i'll show you what 
 <p align="center">
 <a href="https://ibb.co/hF3hMtvg"><img src="https://i.ibb.co/4Rh9f5xF/Untitled111-20261015183852.png" alt="Untitled111-20261015183852" border="0"></a>
   
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/fVRZkSY1/Untitled120-20261015194350.png" alt="Untitled120 20261015194350" border="0"></a> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://imgbb.com/"><img src="https://i.ibb.co/pBQ6BkXr/Untitled120-20261015194346.png" alt="Untitled120 20261015194346" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/fVRZkSY1/Untitled120-20261015194350.png" alt="Untitled120 20261015194350" border="0"></a> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://imgbb.com/"><img src="https://i.ibb.co/pBQ6BkXr/Untitled120-20261015194346.png" alt="Untitled120 20261015194346" border="0"></a>
