@@ -1,6 +1,6 @@
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/7JWprj0W/Untitled119-20261015194218.png" alt="Untitled119 20261015194218" border="0"></a> ㅤ
 <p align="center">
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/ymShJryZ/Untitled117-20261015190904.png" alt="Untitled117 20261015190904" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/Wp75BqjY/Untitled117-20261015190854.png" alt="Untitled117 20261015190854" border="0"></a>
 <p align="center">
 $\color{#06434f}{\text{black hair,}}$ $\color{#124b4e}{\text{it's swimming in my head}}$
 
