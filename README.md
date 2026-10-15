@@ -9,7 +9,4 @@ $\color{#415d4a}{\text{black hair,}}$ $\color{#50634b}{\text{don't leave me in t
 <p align="center">
 $\color{#5e674f}{\text{black hair,}}$ $\color{#6b6c54}{\text{i'll show you what im worth}}$
 <p align="center">
-<a href="https://ibb.co/TMmPr5tp"><img src="https://i.ibb.co/d4Gk7yD1/Untitled109-20261015180034.png" alt="Untitled109-20261015180034" border="0"></a>
-
-
-
+<a href="https://ibb.co/hF3hMtvg"><img src="https://i.ibb.co/4Rh9f5xF/Untitled111-20261015183852.png" alt="Untitled111-20261015183852" border="0"></a>
