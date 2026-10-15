@@ -3,7 +3,7 @@
 <p align="center">
 $\color{#06434f}{\text{black hair,}}$ $\color{#124b4e}{\text{it's swimming in my head}}$
 
-
+ㅤ
 
 
   
@@ -17,7 +17,7 @@ $\color{#22524c}{\text{black hair,}}$ $\color{#31584b}{\text{it's bigger then de
 <p align="center">
 $\color{#415d4a}{\text{black hair,}}$ $\color{#50634b}{\text{don't leave me in the dirt}}$
 
-
+ㅤ
 
 
   
