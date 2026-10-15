@@ -2,10 +2,14 @@
 $\color{#06434f}{\text{black hair,}}$ $\color{#124b4e}{\text{it's swimming in my head}}$
 <p align="center">
 $\color{#22524c}{\text{black hair,}}$ $\color{#31584b}{\text{it's bigger then death}}$
+  <p align="center">
+  <a href="https://ibb.co/XrZrmVZ8"><img src="https://i.ibb.co/hJRJpCRf/Untitled109-20261015175313.png" alt="Untitled109-20261015175313" border="0"></a>
 <p align="center">
 $\color{#415d4a}{\text{black hair,}}$ $\color{#50634b}{\text{don't leave me in the dirt}}$
 <p align="center">
 $\color{#5e674f}{\text{black hair,}}$ $\color{#6b6c54}{\text{i'll show you what im worth}}$
+<p align="center">
+<a href="https://ibb.co/TMmPr5tp"><img src="https://i.ibb.co/d4Gk7yD1/Untitled109-20261015180034.png" alt="Untitled109-20261015180034" border="0"></a>
 
 
 
